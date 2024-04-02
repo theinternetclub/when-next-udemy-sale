@@ -1,1 +1,1 @@
-# when-next-udemy-sale
+# When is next Udemy sale?
